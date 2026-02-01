@@ -1,3 +1,3 @@
 # Subtle Insights
 
-My personal (not so personal) vault for various purposes and goals, unlocked.
+My personal (not so personal) vault for various purposes and goals 🔓
