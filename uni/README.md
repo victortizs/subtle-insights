@@ -1,3 +1,3 @@
 # Uni
 
-Class notes, summaries, tests, etc.
+Class notes, summaries, tests, etc. 📖
