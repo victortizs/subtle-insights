@@ -1,3 +1,3 @@
 # Variety
 
-Drafts, samples, and other things—nothing closely related to school or work.
+Drafts and samples—nothing closely related to school or work.
